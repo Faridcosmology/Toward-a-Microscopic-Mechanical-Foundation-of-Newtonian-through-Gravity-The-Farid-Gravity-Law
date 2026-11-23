@@ -1,0 +1,1 @@
+# Toward-a-Microscopic-Mechanical-Foundation-of-Newtonian-through-Gravity-The-Farid-Gravity-Law
